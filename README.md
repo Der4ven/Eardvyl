@@ -11,7 +11,7 @@
 
 <br>
 
-> Based in Makati. I'm drawn to the seam where engineering meets design — to interfaces that disappear because they just fit.
+> Based in Cebu. I'm drawn to the seam where engineering meets design — to interfaces that disappear because they just fit.
 
 <br>
 
